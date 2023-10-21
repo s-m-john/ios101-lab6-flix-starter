@@ -7,8 +7,3 @@
 
 <blockquote class="imgur-embed-pub" lang="en" data-id="a/bZeLEsA"  ><a href="//imgur.com/a/bZeLEsA">Unit 6 Lab: Flix Detail</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
 
-
-
-
-<blockquote class="imgur-embed-pub" lang="en" data-id="1NnpHwv"><a href="https://imgur.com/1NnpHwv">View post on imgur.com</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
-
